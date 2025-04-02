@@ -1,0 +1,1 @@
+# HandelMistrz-trading-website-N-SP-PL-I
